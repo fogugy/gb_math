@@ -4,7 +4,7 @@
 
 [Задание 1](https://drive.google.com/file/d/1vcy5yKch68AyxkXVK5s0sH2V6nOSuMdc/view?usp=sharing)
 
-[Задание 2.1](https://drive.google.com/file/d/1RRYYr_OfLIUv-NZy-OVyNK75yHuGGVn1/view?usp=sharing)
+[Задание 2.1](https://drive.google.com/file/d/1zFJIoYyaSldxxnUFKVPeC3f5li1axcbS/view?usp=sharing)
 
 [Задание 2.2](https://drive.google.com/file/d/1tfnsAaoMEypBoySZ_4tSWyLhGjkevmJS/view?usp=sharing)
 
