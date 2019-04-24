@@ -19,3 +19,7 @@
 [Задание 4.1](https://drive.google.com/file/d/1MDpd8wrKaQ_P4mm_X3c7s7fdOayQZ4Yd/view?usp=sharing)
 
 [Задание 4.2](https://drive.google.com/file/d/1sX7rfFGIXo6EjXaQwqfuq5P43M9RCDv1/view?usp=sharing)
+
+#### Задания к уроку 3
+
+[Задание 2](https://drive.google.com/file/d/146BTJqyeZTopqVs78XSoT419FsWpJWEa/view?usp=sharing)
